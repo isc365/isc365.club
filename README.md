@@ -13,4 +13,4 @@
 
 หรือกดปุ่ม Add Friends เพื่อสมัครพร้อมรับโปรโมชั่นพิเศษมากมาย
 
-[![N|Solid](https://scdn.line-apps.com/n/line_add_friends/btn/en.png)](https://line.me/R/ti/p/%40opc4021q)
+[![N|Solid](https://scdn.line-apps.com/n/line_add_friends/btn/en.png)](www.isc365.vip)
